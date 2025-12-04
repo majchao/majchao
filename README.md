@@ -3,7 +3,10 @@
 </br>
 </br>
 
+
+
 ![](https://komarev.com/ghpvc/?username=hempisolate&label=                                           &color=f394b2&base=665)
+> 
 ## 
 
 ### 𐔌՞. .՞𐦯  <ins>maj</ins>or <sup>or</sup> <ins>chao</ins> cc.
@@ -23,7 +26,8 @@
 | ------------- | ------------- |
 | <blockquote> <sub>**insta-block random reqs**</sub></br><sup>follow/friend = irl/close <ins>only</ins></sup> </blockquote> | <blockquote> <sub>**limit casual int if >18**</sub></br><sup>or lacking fandom etiquette</sup></blockquote> |
 
-> <sub>*feel free to interact, but i have <ins>little to no</ins> interest befriending anyone*</sub>\
-> <sup>*through this game that i don't already know outside of it — sorry!*</sup>
+| |
+| ------------- |
+| <blockquote> <sub>feel free to interact, but i have <ins>little</ins> to <ins>no</ins> interest befriending anyone</sub></br><sup>through this game that i don't already know outside of it — sorry!</sup> |
 
 </div>
