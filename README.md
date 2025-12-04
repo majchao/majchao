@@ -21,7 +21,7 @@
 
 | | |
 | ------------- | ------------- |
-| <blockquote> <sub>**insta-block random reqs**</sub></br><sup>follow/friend = irl/close <ins>only</ins></sup> </blockquote> | <blockquote> <sub>**limit casual int if >18**</sub></br><sup>or anti-fandom etiquette</sup></blockquote> |
+| <blockquote> <sub>**insta-block random reqs**</sub></br><sup>follow/friend = irl/close <ins>only</ins></sup> </blockquote> | <blockquote> <sub>**limit casual int if >18**</sub></br><sup>or lacking fandom etiquette</sup></blockquote> |
 
 > <sub>*feel free to interact, but i have <ins>little to no</ins> interest befriending anyone*</sub>\
 > <sup>*through this game that i don't already know outside of it — sorry!*</sup>
