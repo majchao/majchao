@@ -28,6 +28,6 @@
 
 | |
 | ------------- |
-| <blockquote> <sub>feel free to interact, but i have <ins>little</ins> to <ins>no</ins> interest befriending anyone</sub></br><sup>through this game that i don't already know outside of it — sorry!</sup> |
+| <sub>*feel free to interact, but i have <ins>little</ins> to <ins>no</ins> interest befriending anyone*</sub></br><sup>*through this game that i don't already know outside of it — sorry!*</sup> |
 
 </div>
