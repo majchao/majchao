@@ -28,6 +28,6 @@
 
 | |
 | ------------- |
-| <sub>***i'd really love to chat with you!**  that said, please note i have <ins>little to no</ins> interest fully</sub></br><sup>befriending anyone through this game that i don't already know outside of it — **sorry!**</sup></blockquote>*
+| <sub>***i'd really love to chat with you!**  that said, please note i have <ins>little to no</ins> interest fully</sub></br><sup>befriending anyone through this game that i don't also already know outside of it — **sorry!**</sup></blockquote>*
 
 </div>
